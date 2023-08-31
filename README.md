@@ -1,1 +1,1 @@
-# NihonDepato
+# Nihon Depato
